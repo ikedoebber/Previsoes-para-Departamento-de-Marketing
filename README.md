@@ -1,2 +1,2 @@
-# Previsoes para Departamento de MArketing
+# Previsoes para Departamento de Marketing
  
